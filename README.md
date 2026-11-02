@@ -1,1 +1,1 @@
-# Hackaton-Well-being-Eli-2026
+# Hackathon-Well-being-Eli-2026
